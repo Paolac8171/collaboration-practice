@@ -1,6 +1,6 @@
-#### 1 Mr.Mueller wuz here 
+#### 1
 #### 2
-#### 3
+#### 3 Mr. mueller wuz here!
 #### 4
 #### 5
 #### 6
