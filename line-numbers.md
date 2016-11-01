@@ -6,9 +6,10 @@
 #### 6
 #### 7 Skittles rittles 
 #### 8
+#### 9 Github is really good. 
 #### 9 Github is really good
 #### 10
-#### 11 Toothbrush
+#### 11 Toothbrush is good 
 #### 12
 #### 13
 #### 14
