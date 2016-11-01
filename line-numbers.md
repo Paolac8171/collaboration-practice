@@ -7,8 +7,9 @@
 #### 7 Skittles rittles 
 #### 8
 #### 9 Github is really good. 
+#### 9 Github is really good
 #### 10
-#### 11
+#### 11 candy is good
 #### 12
 #### 13
 #### 14
